@@ -1,1 +1,1 @@
-                                                                🎉🎉🎉 This is the Counter __ app 🎉🎉🎉
+                     🎉🎉🎉 This is the Counter __ app 🎉🎉🎉
